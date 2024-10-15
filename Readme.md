@@ -1,0 +1,1 @@
+![image](https://thumb.cloud.mail.ru/weblink/thumb/xw1/c4xM/mrFbnJSsV)
